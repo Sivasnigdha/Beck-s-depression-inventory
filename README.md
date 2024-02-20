@@ -1,0 +1,1 @@
+# Beck-s-depression-inventory
